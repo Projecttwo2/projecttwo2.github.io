@@ -1,1 +1,1 @@
-# projecttwo2.github.io
+# StudTech.github.io
